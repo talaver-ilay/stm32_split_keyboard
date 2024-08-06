@@ -1,1 +1,0 @@
-Redox handwire by MattDB on Thingiverse: https://www.thingiverse.com/thing:2704567
